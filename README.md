@@ -1,7 +1,5 @@
 ### Welcome to my shitty profile 💀
-***Welcome to my shitty profile***
-
-thing I excel at doing:
+***things I excel at doing:***
 - being a lazy ass
 - be annoying
 - vibin' with the bois
