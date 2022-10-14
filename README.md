@@ -1,12 +1,12 @@
 ### Welcome to my shitty profile 💀
 ***things I excel at doing:***
-- being a lazy ass
-- be annoying
-- vibin' with the bois
-- being aesthetic as fucc
-- your mom
+- being a lazy ass 💤
+- annoy everyone 💖 
+- vibin' with the bois 🤙
+- being aesthetic as fucc ✨
+- your mom 
 
-also this profile isn't anonymous or anything, anyone can easily know my irl identity, I ain't a black hat either, I just post and save stupidity on this github profile
+also this profile isn't anonymous or anything, anyone can easily know my irl identity; I ain't a black hat either, I just post and save stupidity on this github profile
 
 <!--
 **birdisito/birdisito** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
