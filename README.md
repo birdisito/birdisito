@@ -1,4 +1,12 @@
-### Hi there 👋
+### Welcome to my shitty profile 💀
+***Welcome to my shitty profile***
+
+thing I excel at doing:
+- being a lazy ass
+- be annoying
+- vibin' with the bois
+- being aesthetic as fucc
+- your mom
 
 <!--
 **birdisito/birdisito** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
