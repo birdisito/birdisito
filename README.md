@@ -6,6 +6,8 @@
 - being aesthetic as fucc
 - your mom
 
+also this profile isn't anonymous or anything, anyone can easily know my irl identity, I ain't a black hat either, I just post and save stupidity on this github profile
+
 <!--
 **birdisito/birdisito** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
