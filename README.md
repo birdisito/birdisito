@@ -5,4 +5,4 @@
 - vibin' with the bois 🤙
 - your mom 
 
-<sub> also this profile isn't anonymous or anything, anyone can easily know my irl identity; and this isn't my professional portfolio either </sub>
+<sub> also, this isn't my professional portfolio neither my real github profile, just a decoy </sub>
