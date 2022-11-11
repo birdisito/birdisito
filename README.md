@@ -5,4 +5,4 @@
 - vibin' with the bois 🤙
 - your mom 
 
-<sub> also, this isn't my professional portfolio neither my real github profile, just a decoy </sub>
+<sub> also, this isn't my professional portfolio nor my real github profile, just a decoy account </sub>
