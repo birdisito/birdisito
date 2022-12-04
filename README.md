@@ -1,6 +1,6 @@
 ![skull](https://i.imgur.com/cIlY6a4.gif)
 
-<sub> this isn't my real github profile nor my professional portfolio, just a decoy account for nothing malicious </sub>
+<sub> this isn't my real github profile nor my professional portfolio, just a decoy account to claim my username </sub>
 
 ```                         
 ⠀⢀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⢀⡀⠀
