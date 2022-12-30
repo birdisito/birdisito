@@ -1,19 +1,7 @@
 ![skull](https://i.imgur.com/cIlY6a4.gif)
 
-<sub> this isn't my real github profile nor my professional portfolio, just a decoy account to claim my username </sub>
+<sub> this isn't my professional github profile; just a decoy account to claim my username </sub>
 
-```                         
-⠀⢀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⢀⡀⠀
-⠀⣷⡉⠒⠢⢄⡀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⣀⠤⠖⠋⢡⡇⠀                  (       lmao            )
-⠀⣿⢇⠀⠀⠀⠙⠢⣀⣰⢢⡗⢦⣀⣠⣤⠚⠁⠀⠀⢀⡟⡇⠀                (       bottomtext        )
-⠀⢸⡈⢦⠀⠀⠀⠀⠀⠙⠀⠈⠀⠁⠉⠀⠀⠀⠀⢠⣟⢺⠀⠀              O   |      Birdy#2128       |
-⠀⠈⢧⠹⣃⡢⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⢳⣩⣯⠃⠀⠀           0         _ _ _ _ _ _ _ _ __  _
-⠀⠀⠺⣙⢜⡇⠰⠶⣶⣦⡄⠀⠀⡤⣤⢤⡤⠄⠘⣀⠽⠀⠀⠀      o
-⠀⠀⢀⢹⣿⠀⢀⣀⣤⣀⠁⠀⠀⠈⢀⣀⣀⠀⠘⣗⣦⠀⠀⠀  .
-⠀⠀⢨⣾⣄⠀⠄⠁⠀⠠⣴⣶⣶⠮⠆⠉⠉⠁⠀⠀⡸⠀⠀⠀
-⠀⠀⢀⢧⡀⠀⠀⠀⠀⠀⠈⠙⠋⠀⠀⠀⠀⠀⢠⣦⡀⠀⠀⠀
-⠀⠀⠈⠉⢻⣂⣀⡀⠈⠉⠉⠀⠈⠑⠚⠀⢀⣄⣹⠐⠁⠀⠀⠀
-⠀⠀⠀⠀⠀⠀⠀⢙⣷⢦⠤⣤⠤⠤⢖⠊⠉⠀⠀⠀⠀⠀⠀⠀
-⠀⠀⠀⠀⠀⠀⣀⣘⡌⠫⠔⡀⠃⣰⣯⣀⡀⠀⠀⠀⠀⠀⠀⠀
-⣀⣀⣠⣤⣶⣟⣻⣈⣀⣀⣀⣈⣁⣁⣁⣠⣿⣷⣄⣤⣀⣀⣀⣀
+```
+Birdy#2128
 ```
